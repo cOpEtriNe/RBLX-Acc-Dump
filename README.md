@@ -1,3 +1,5 @@
+## None of these accounts are usable anymore!!!
+
 # RBLX-Acc-Dump
 Botted Roblox accounts
 
