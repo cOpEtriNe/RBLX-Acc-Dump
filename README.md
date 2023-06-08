@@ -1,4 +1,5 @@
 ## None of these accounts are usable anymore!!!
+roblox added a stupid security notification if you try to sign into these accounts (some might not have the message so keep logging into different alts and you might get in.)
 
 # RBLX-Acc-Dump
 Botted Roblox accounts
